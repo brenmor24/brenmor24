@@ -1,4 +1,4 @@
-### Hello! Welcome to my GitHub 😊
+### Hello! Welcome to my GitHub.
 
 **EMAIL** → moranbk3@miamioh.edu
 
